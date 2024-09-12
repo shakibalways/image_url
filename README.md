@@ -32,16 +32,31 @@
 ![invite](https://github.com/user-attachments/assets/a001cace-9b4e-40eb-ba7d-56339e45de47)
 ![settings](https://github.com/user-attachments/assets/ee71f40e-d550-4229-8072-9348c888e120)
 ![support](https://github.com/user-attachments/assets/64d8fafb-54a4-4be2-a68c-3b9e63c43803)
+![Functionality](https://github.com/user-attachments/assets/110075ea-165e-4b58-93c1-dedb9560e872)
+![Beosound_white](https://github.com/user-attachments/assets/12132a5b-120a-495c-b8ec-300107f380d9)
 
 
+## Headphone
+![Wiresto_07S_Wireless](https://github.com/user-attachments/assets/7925b373-a46c-4a58-a793-02bbf74d4bad)
+![Rare](https://github.com/user-attachments/assets/b8d19884-3c60-4a97-9287-92f31e438915)
+![HeadPhone_Wireless](https://github.com/user-attachments/assets/cb405051-7c24-4180-8547-06d628da1f19)
+![Havit D229](https://github.com/user-attachments/assets/f9b802e8-e1e0-4e86-9f84-0b1ccdba1eed)
+![Awei_A200BL](https://github.com/user-attachments/assets/715cc94a-c524-4c2e-93d1-5056f89d93a6)
 
+## Beo
 
+![Caligrafi](https://github.com/user-attachments/assets/eccddeaa-71f5-43e0-8aaa-b4bb0aaf7bb6)
+![BeoPlay_A9](https://github.com/user-attachments/assets/72f29641-31b4-492c-a09b-488d47a45784)
+![Bang_Olufsen](https://github.com/user-attachments/assets/7b396ffe-d362-4d49-8c7e-1b10e22b7f41)
 
+![Skiniplay_Beoplay](https://github.com/user-attachments/assets/b0a69c8a-64f6-4866-b301-26a4950e095f)
+![Cover_Bang](https://github.com/user-attachments/assets/b1a627d1-a8ff-4de3-8c71-a4b6370af645)
 
+## BeoSound
 
-
-
-
-
+![Functionality](https://github.com/user-attachments/assets/9cc1aae4-1707-4338-a474-317d524d43e8)
+![Beosound_white](https://github.com/user-attachments/assets/4fbb8ddb-b6cf-40b6-9e28-4a50e1ee2ffe)
+![Bala_Beosound](https://github.com/user-attachments/assets/efe0ec57-72fd-4555-9704-6f1e1171a45e)
+![B_O_Beosound](https://github.com/user-attachments/assets/015ccf4b-5eb3-4630-ae78-7869b0aaaf21)
 
 
