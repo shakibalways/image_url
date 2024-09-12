@@ -39,9 +39,12 @@
 ## Headphone
 ![Wiresto_07S_Wireless](https://github.com/user-attachments/assets/7925b373-a46c-4a58-a793-02bbf74d4bad)
 ![Rare](https://github.com/user-attachments/assets/b8d19884-3c60-4a97-9287-92f31e438915)
-![HeadPhone_Wireless](https://github.com/user-attachments/assets/cb405051-7c24-4180-8547-06d628da1f19)
 ![Havit D229](https://github.com/user-attachments/assets/f9b802e8-e1e0-4e86-9f84-0b1ccdba1eed)
 ![Awei_A200BL](https://github.com/user-attachments/assets/715cc94a-c524-4c2e-93d1-5056f89d93a6)
+
+![HeadPhone_Wireless](https://github.com/user-attachments/assets/32273b6b-e05e-4a9b-8032-3aef42130eb6)
+
+
 
 ## Beo
 
